@@ -37,12 +37,14 @@ The data and background methodology released to partners are available here:
 The Shared Data Unit makes data journalism available to the wider news industry as part of the BBC Local News Partnership.
 Stories written by partners based on this research included:
 
+* Aberdeen Press and Journal: [Outrage over benefits system as terminally ill woman told to resubmit forms - then died the same day](https://www.pressandjournal.co.uk/fp/lifestyle/health-and-wellbeing/3652203/outrage-over-benefits-system-as-terminally-ill-woman-told-to-resubmit-forms-then-died-the-same-day/) *8 November 2021*
 * Bolton Journal: REVEALED: Over 350 terminal patients hit by 'cruel and arbitrary' benefits rule *8 November 2021*
 * The Bolton News: [More than 350 terminal patients in Bolton hit by 'cruel and arbitrary' benefits rule](https://www.theboltonnews.co.uk/news/19691861.350-terminal-patients-bolton-hit-cruel-arbitrary-benefits-rule/) *8 November 2021*
 * Bury Times: [More than 240 Bury terminal patients hit by 'cruel and arbitrary' benefits rule](https://www.burytimes.co.uk/news/19691925.240-bury-terminal-patients-hit-cruel-arbitrary-benefits-rule/) *8 November 2021*
-* Greatest Hits Radio Essex
-* Greatest Hits Radio Norfolk
-* Greatest Hits Radio Suffolk
+* Get Surrey: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.getsurrey.co.uk/news/uk-world-news/100-people-died-waiting-dwp-22098357) *8 November 2021*
+* Greatest Hits Radio Essex: [Government urged to overhaul 'overly complex' terminal illness benefits system](https://planetradio.co.uk/greatest-hits/essex/news/government-urged-to-overhaul-overly-complex-terminal-benefits-system-essex/) *8 November 2021*
+* Greatest Hits Radio Norfolk: [Benefits system for terminally ill in need of urgent reform](https://planetradio.co.uk/greatest-hits/norfolk/news/benefits-system-terminally-ill-norfolk/) *8 November 2021*
+* Greatest Hits Radio Suffolk bulletins
 * Hull Daily Mail: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.hulldailymail.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Lancashire Telegraph: [REVEALED: Over 500 terminal patients hit by 'cruel and arbitrary' benefit rule](https://www.lancashiretelegraph.co.uk/news/19692001.east-lancashire-500-terminal-patients-hit-cruel-arbitrary-benefit-rule/) *8 November 2021*
 * Planet Radio: [Benefits system for terminally ill in need of urgent reform](https://planetradio.co.uk/hits-radio/uk/news/benefits-system-terminally-ill/) *8 November 2021*

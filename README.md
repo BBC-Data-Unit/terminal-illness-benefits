@@ -51,6 +51,7 @@ Stories written by partners based on this research included:
 * Grimsby Telegraph: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.grimsbytelegraph.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Hull Daily Mail: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.hulldailymail.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Lancashire Telegraph: [REVEALED: Over 500 terminal patients hit by 'cruel and arbitrary' benefit rule](https://www.lancashiretelegraph.co.uk/news/19692001.east-lancashire-500-terminal-patients-hit-cruel-arbitrary-benefit-rule/) *8 November 2021*
+* My London: [Terminally ill Londoners forced to wait for benefits with 6 months to live](https://www.mylondon.news/news/health/terminally-ill-londoners-forced-wait-22100771) *8 November 2021*
 * North Wales Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.dailypost.co.uk/news/uk-world-news/100-people-died-waiting-dwp-22098357) *8 November 2021*
 * Planet Radio: [Benefits system for terminally ill in need of urgent reform](https://planetradio.co.uk/hits-radio/uk/news/benefits-system-terminally-ill/) *8 November 2021*
 * South London Press: [Thousands of Londoners forced to apply for benefits when they have terminal illnesses](https://londonnewsonline.co.uk/thousands-of-londoners-forced-to-apply-for-universal-credit-when-they-have-terminal-illnesses/) *8 November 2021*

@@ -37,9 +37,11 @@ The data and background methodology released to partners are available here:
 The Shared Data Unit makes data journalism available to the wider news industry as part of the BBC Local News Partnership.
 Stories written by partners based on this research included:
 
-
 * Bolton Journal: REVEALED: Over 350 terminal patients hit by 'cruel and arbitrary' benefits rule *8 November 2021*
 * Bury Times: [More than 240 Bury terminal patients hit by 'cruel and arbitrary' benefits rule](https://www.burytimes.co.uk/news/19691925.240-bury-terminal-patients-hit-cruel-arbitrary-benefits-rule/) *8 November 2021*
+* Hull Daily Mail: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.hulldailymail.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
+* Lancashire Telegraph: REVEALED: Over 500 terminal patients hit by 'cruel and arbitrary' benefit rule *8 November 2021*
+* Planet Radio: [Benefits system for terminally ill in need of urgent reform](https://planetradio.co.uk/hits-radio/uk/news/benefits-system-terminally-ill/) *8 November 2021*
 
 The story featured on .
 

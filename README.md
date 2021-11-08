@@ -56,6 +56,6 @@ Stories written by partners based on this research included:
 * South London Press: [Thousands of Londoners forced to apply for benefits when they have terminal illnesses](https://londonnewsonline.co.uk/thousands-of-londoners-forced-to-apply-for-universal-credit-when-they-have-terminal-illnesses/) *8 November 2021*
 * Wales Online: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.walesonline.co.uk/news/uk-news/100-people-died-waiting-dwp-22098357) *8 November 2021* 
 
-The story featured on television on the BBC News Channel and it was also reported by BBC local radio stations covering London, the West Midlands, Cumbria, Three Counties, Wiltshire and The Solent.
+The story featured on television on the BBC News Channel and it was also reported by BBC radio stations covering Northern Ireland, London, the West Midlands, Cumbria, Three Counties, Wiltshire and The Solent.
 
 ## Other usage

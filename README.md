@@ -27,9 +27,10 @@ The data and background methodology released to partners are available here:
 * Dr Sam Royston (he/him), director of policy and research at the end of life charity, Marie Curie
 * Susie Rabin (she/her), head of policy and campaigns at the Motor Neurone Disease Association charity
 * Dr Catherine Millington-Sanders (she/her), clinical lead for palliative and end of life care for the Royal College of GPs
-* Paul Alexander(he/him), policy manager at disability equality charity Scope
+* Paul Alexander (he/him), policy manager at disability equality charity Scope
 * Mrs Madeleine Moon (she/her), former Labour MP for Bridgend, who previously sponsored a Private Members' Bill in 2018 which proposed to remove the six-month end-of-life definition in the special rules and replace it with a clinical judgment made by an appropriate health professional 
 * University of York Professor of Law Charlotte O'Brien (she/her), a specialist in welfare law
+* Richard Meade (he/him), head of policy and public affairs at end of life charity Marie Curie in Scotland
 * The Department for Work and Pensions
 
 ## Partner usage

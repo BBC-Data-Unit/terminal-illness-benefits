@@ -45,9 +45,9 @@ Stories written by partners based on this research included:
 * Bristol Post: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.bristolpost.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Bury Times: [More than 240 Bury terminal patients hit by 'cruel and arbitrary' benefits rule](https://www.burytimes.co.uk/news/19691925.240-bury-terminal-patients-hit-cruel-arbitrary-benefits-rule/) *8 November 2021*
 * Get Surrey: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.getsurrey.co.uk/news/uk-world-news/100-people-died-waiting-dwp-22098357) *8 November 2021*
-* Greatest Hits Radio Essex: [Government urged to overhaul 'overly complex' terminal illness benefits system](https://planetradio.co.uk/greatest-hits/essex/news/government-urged-to-overhaul-overly-complex-terminal-benefits-system-essex/) *8 November 2021*
-* Greatest Hits Radio Norfolk: [Benefits system for terminally ill in need of urgent reform](https://planetradio.co.uk/greatest-hits/norfolk/news/benefits-system-terminally-ill-norfolk/) *8 November 2021*
-* Greatest Hits Radio Suffolk bulletins
+* Greatest Hits Radio Essex (and bulletins): [Government urged to overhaul 'overly complex' terminal illness benefits system](https://planetradio.co.uk/greatest-hits/essex/news/government-urged-to-overhaul-overly-complex-terminal-benefits-system-essex/) *8 November 2021*
+* Greatest Hits Radio Norfolk (and bulletins): [Benefits system for terminally ill in need of urgent reform](https://planetradio.co.uk/greatest-hits/norfolk/news/benefits-system-terminally-ill-norfolk/) *8 November 2021*
+* Greatest Hits Radio Suffolk (and bulletins): [Benefits system for terminally ill in need of urgent reform](https://planetradio.co.uk/greatest-hits/suffolk/news/benefits-system-terminally-ill-suffolk/) *8 November 2021*
 * Grimsby Telegraph: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.grimsbytelegraph.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Hull Daily Mail: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.hulldailymail.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Lancashire Telegraph: [REVEALED: Over 500 terminal patients hit by 'cruel and arbitrary' benefit rule](https://www.lancashiretelegraph.co.uk/news/19692001.east-lancashire-500-terminal-patients-hit-cruel-arbitrary-benefit-rule/) *8 November 2021*

@@ -44,20 +44,28 @@ Stories written by partners based on this research included:
 * Bristol Live: [Hundreds of terminally ill patients in Bristol applied for fast-track access to benefits](https://www.bristolpost.co.uk/news/bristol-news/hundreds-terminally-ill-patients-bristol-6167370) *8 November 2021*
 * Bristol Post: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.bristolpost.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Bury Times: [More than 240 Bury terminal patients hit by 'cruel and arbitrary' benefits rule](https://www.burytimes.co.uk/news/19691925.240-bury-terminal-patients-hit-cruel-arbitrary-benefits-rule/) *8 November 2021*
+* Cambridgeshire Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.cambridge-news.co.uk/news/uk-world-news/100-people-died-waiting-dwp-22098357) *8 November 2021*
 * Get Surrey: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.getsurrey.co.uk/news/uk-world-news/100-people-died-waiting-dwp-22098357) *8 November 2021*
 * Greatest Hits Radio Essex (and bulletins): [Government urged to overhaul 'overly complex' terminal illness benefits system](https://planetradio.co.uk/greatest-hits/essex/news/government-urged-to-overhaul-overly-complex-terminal-benefits-system-essex/) *8 November 2021*
 * Greatest Hits Radio Norfolk (and bulletins): [Benefits system for terminally ill in need of urgent reform](https://planetradio.co.uk/greatest-hits/norfolk/news/benefits-system-terminally-ill-norfolk/) *8 November 2021*
+* Greatest Hits Radio Norfolk (and bulletins): [East Anglian MP presses Government to reform benefits system for terminally ill](https://planetradio.co.uk/greatest-hits/norfolk/news/east-mp-calls-government-reform-terminal-illness-benefits/) *9 November 2021*
 * Greatest Hits Radio Suffolk (and bulletins): [Benefits system for terminally ill in need of urgent reform](https://planetradio.co.uk/greatest-hits/suffolk/news/benefits-system-terminally-ill-suffolk/) *8 November 2021*
 * Grimsby Telegraph: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.grimsbytelegraph.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Hull Daily Mail: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.hulldailymail.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Lancashire Telegraph: [REVEALED: Over 500 terminal patients hit by 'cruel and arbitrary' benefit rule](https://www.lancashiretelegraph.co.uk/news/19692001.east-lancashire-500-terminal-patients-hit-cruel-arbitrary-benefit-rule/) *8 November 2021*
+* Lancs Live: [DWP: 100 people died waiting for benefits after terminal illness diagnosis](https://www.lancs.live/news/uk-world-news/dwp-100-people-died-waiting-22109472) *9 November 2021*
+* Leicestershire Live: [Fears many terminally-ill missed out on benefits after hundreds in county applied](https://www.leicestermercury.co.uk/news/local-news/fears-many-terminally-ill-missed-6172559) *8 November 2021*
 * Lincolnshire Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.lincolnshirelive.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * My London: [Terminally ill Londoners forced to wait for benefits with 6 months to live](https://www.mylondon.news/news/health/terminally-ill-londoners-forced-wait-22100771) *8 November 2021*
 * North Wales Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.dailypost.co.uk/news/uk-world-news/100-people-died-waiting-dwp-22098357) *8 November 2021*
+* Oxfordshire Live: [Hundreds of terminally ill patients in Oxfordshire applied for fast-track access to benefits](https://www.oxfordshirelive.co.uk/news/oxfordshire-news/hundreds-terminally-ill-patients-oxfordshire-6168404) *8 November 2021*
 * Planet Radio: [Benefits system for terminally ill in need of urgent reform](https://planetradio.co.uk/hits-radio/uk/news/benefits-system-terminally-ill/) *8 November 2021*
 * South London Press: [Thousands of Londoners forced to apply for Personal Independence Payments (PIP) when they have terminal illnesses](https://londonnewsonline.co.uk/thousands-of-londoners-forced-to-apply-for-universal-credit-when-they-have-terminal-illnesses/) *8 November 2021*
+* Suffolk News: [Urgent reform needed for 'degrading' benefits system for people living with terminal illnesses, charities say](https://www.suffolknews.co.uk/lowestoft/urgent-reform-needed-for-degrading-benefits-system-for-peo-9224457/) *8 November 2021*
 * Wales Online: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.walesonline.co.uk/news/uk-news/100-people-died-waiting-dwp-22098357) *8 November 2021* 
 
 The story featured on television on the BBC News Channel and it was also reported by BBC radio stations covering Northern Ireland, London, the West Midlands, Cumbria, Three Counties, Wiltshire and The Solent.
 
 ## Other usage
+
+* The Express: [DWP confirms when benefits changes offering fast-tracked access will come into effect](https://www.express.co.uk/finance/personalfinance/1518568/dwp-pip-universal-credit-attendance-allowance-terminal-fast-tracked-benefits-2022) *9 November 2021*

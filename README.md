@@ -61,6 +61,7 @@ Stories written by partners based on this research included:
 * Grimsby Telegraph (in print): Call for changes to end-of-life benefits used by many across our town; PROCESS SLAMMED BY CHARITIES AS 'OVERLY COMPLEX AND STRESSFUL' *8 November 2021*
 * Herts Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.hertfordshiremercury.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Hull Daily Mail: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.hulldailymail.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
+* In Your Area: [DWP: 100 people have died waiting for benefits pay-out after terminal diagnosis](https://www.inyourarea.co.uk/news/dwp-100-people-have-died-waiting-for/) *10 November 2021*
 * Kent Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.kentlive.news/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Lancashire Telegraph: [REVEALED: Over 500 terminal patients hit by 'cruel and arbitrary' benefit rule](https://www.lancashiretelegraph.co.uk/news/19692001.east-lancashire-500-terminal-patients-hit-cruel-arbitrary-benefit-rule/) *8 November 2021*
 * Lancs Live: [DWP: 100 people died waiting for benefits after terminal illness diagnosis](https://www.lancs.live/news/uk-world-news/dwp-100-people-died-waiting-22109472) *9 November 2021*
@@ -77,7 +78,7 @@ Stories written by partners based on this research included:
 * Teesside Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.gazettelive.co.uk/news/uk-world-news/100-people-died-waiting-dwp-22098357) *8 November 2021*
 * Wales Online: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.walesonline.co.uk/news/uk-news/100-people-died-waiting-dwp-22098357) *8 November 2021* 
 
-The story featured on television on the BBC News Channel and it was also reported by BBC radio stations covering Northern Ireland, London, the West Midlands, Cumbria, Three Counties, Wiltshire and The Solent.
+The story featured on television on the BBC News Channel and it was also reported by BBC radio stations covering Northern Ireland, London, the West Midlands, Cumbria, Three Counties, [Wiltshire](https://twitter.com/BBCWiltshire/status/1457597639609004033) and The Solent.
 
 ## Other usage
 

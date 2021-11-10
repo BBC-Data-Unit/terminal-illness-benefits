@@ -63,7 +63,7 @@ Stories written by partners based on this research included:
 * Hull Daily Mail: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.hulldailymail.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * In Your Area: [DWP: 100 people have died waiting for benefits pay-out after terminal diagnosis](https://www.inyourarea.co.uk/news/dwp-100-people-have-died-waiting-for/) *10 November 2021*
 * Kent Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.kentlive.news/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
-* Lancashire Telegraph: [REVEALED: Over 500 terminal patients hit by 'cruel and arbitrary' benefit rule](https://www.lancashiretelegraph.co.uk/news/19692001.east-lancashire-500-terminal-patients-hit-cruel-arbitrary-benefit-rule/) *8 November 2021*
+* Lancashire Telegraph: [East Lancashire: Over 500 terminal patients hit by 'cruel and arbitrary' benefit rule](https://www.lancashiretelegraph.co.uk/news/19692001.east-lancashire-500-terminal-patients-hit-cruel-arbitrary-benefit-rule/) *8 November 2021*
 * Lancs Live: [DWP: 100 people died waiting for benefits after terminal illness diagnosis](https://www.lancs.live/news/uk-world-news/dwp-100-people-died-waiting-22109472) *9 November 2021*
 * Leicestershire Live: [Fears many terminally-ill missed out on benefits after hundreds in county applied](https://www.leicestermercury.co.uk/news/local-news/fears-many-terminally-ill-missed-6172559) *8 November 2021*
 * Lincolnshire Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.lincolnshirelive.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*

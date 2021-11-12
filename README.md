@@ -75,6 +75,7 @@ Stories written by partners based on this research included:
 * Plymouth Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.plymouthherald.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Plymouth Live: [Calls for urgent reforms to the benefits system for terminally ill patients](https://www.plymouthherald.co.uk/news/plymouth-news/calls-urgent-reforms-benefits-system-6180861) *9 November 2021*
 * South London Press: [Thousands of Londoners forced to apply for Personal Independence Payments (PIP) when they have terminal illnesses](https://londonnewsonline.co.uk/thousands-of-londoners-forced-to-apply-for-universal-credit-when-they-have-terminal-illnesses/) *8 November 2021*
+* The Sentinel, Stoke (in print): End-of-life benefits 'need urgent action' *11 November 2021*
 * Suffolk News: [Urgent reform needed for 'degrading' benefits system for people living with terminal illnesses, charities say](https://www.suffolknews.co.uk/lowestoft/urgent-reform-needed-for-degrading-benefits-system-for-peo-9224457/) *8 November 2021*
 * Teesside Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.gazettelive.co.uk/news/uk-world-news/100-people-died-waiting-dwp-22098357) *8 November 2021*
 * Wales Online: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.walesonline.co.uk/news/uk-news/100-people-died-waiting-dwp-22098357) *8 November 2021* 

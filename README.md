@@ -40,6 +40,7 @@ Stories written by partners based on this research included:
 
 * Aberdeen Press and Journal: [Outrage over benefits system as terminally ill woman told to resubmit forms - then died the same day](https://www.pressandjournal.co.uk/fp/lifestyle/health-and-wellbeing/3652203/outrage-over-benefits-system-as-terminally-ill-woman-told-to-resubmit-forms-then-died-the-same-day/) *8 November 2021*
 * Aberdeen Press and Journal (in print): Call for easier access to benefits support for terminally ill claimants *8 November 2021*
+* Berkshire Live: [Hundreds of terminally ill patients in Berkshire applied for fast-track access to benefits](https://www.getreading.co.uk/news/reading-berkshire-news/hundreds-terminally-ill-patients-berkshire-22154987) *15 November 2021*
 * Bolton Journal (in print): REVEALED: Over 350 terminal patients hit by 'cruel and arbitrary' benefits rule *8 November 2021*
 * The Bolton News: [More than 350 terminal patients in Bolton hit by 'cruel and arbitrary' benefits rule](https://www.theboltonnews.co.uk/news/19691861.350-terminal-patients-bolton-hit-cruel-arbitrary-benefits-rule/) *8 November 2021*
 * Bristol Live: [Hundreds of terminally ill patients in Bristol applied for fast-track access to benefits](https://www.bristolpost.co.uk/news/bristol-news/hundreds-terminally-ill-patients-bristol-6167370) *8 November 2021*
@@ -58,7 +59,8 @@ Stories written by partners based on this research included:
 * Greatest Hits Radio Norfolk (and bulletins): [East Anglian MP presses Government to reform benefits system for terminally ill](https://planetradio.co.uk/greatest-hits/norfolk/news/east-mp-calls-government-reform-terminal-illness-benefits/) *9 November 2021*
 * Greatest Hits Radio Suffolk (and bulletins): [Benefits system for terminally ill in need of urgent reform](https://planetradio.co.uk/greatest-hits/suffolk/news/benefits-system-terminally-ill-suffolk/) *8 November 2021*
 * Grimsby Telegraph: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.grimsbytelegraph.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
-* Grimsby Telegraph (in print): Call for changes to end-of-life benefits used by many across our town; PROCESS SLAMMED BY CHARITIES AS 'OVERLY COMPLEX AND STRESSFUL' *8 November 2021*
+* Grimsby Telegraph (Grimsby, in print): Call for changes to end-of-life benefits used by many across our town; PROCESS SLAMMED BY CHARITIES AS 'OVERLY COMPLEX AND STRESSFUL' *8 November 2021*
+* Grimsby Telegraph (northern Lincolnshire, in print): Call for changes to end-of-life benefits used by hundreds of local patients; UNDER CURRENT RULES, PEOPLE CAN ACCESS SUPPORT QUICKLY AND AT A HIGHER RATE *15 November 2021*
 * Herts Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.hertfordshiremercury.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Hull Daily Mail: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.hulldailymail.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * In Your Area: [DWP: 100 people have died waiting for benefits pay-out after terminal diagnosis](https://www.inyourarea.co.uk/news/dwp-100-people-have-died-waiting-for/) *10 November 2021*
@@ -75,6 +77,7 @@ Stories written by partners based on this research included:
 * Plymouth Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.plymouthherald.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Plymouth Live: [Calls for urgent reforms to the benefits system for terminally ill patients](https://www.plymouthherald.co.uk/news/plymouth-news/calls-urgent-reforms-benefits-system-6180861) *9 November 2021*
 * South London Press: [Thousands of Londoners forced to apply for Personal Independence Payments (PIP) when they have terminal illnesses](https://londonnewsonline.co.uk/thousands-of-londoners-forced-to-apply-for-universal-credit-when-they-have-terminal-illnesses/) *8 November 2021*
+* South London Press: [Terminally ill patients missing out on vital payments](https://londonnewsonline.co.uk/terminally-ill-patients-missing-out-on-vital-payments/) *12 November 2021*
 * The Sentinel, Stoke (in print): End-of-life benefits 'need urgent action' *11 November 2021*
 * Suffolk News: [Urgent reform needed for 'degrading' benefits system for people living with terminal illnesses, charities say](https://www.suffolknews.co.uk/lowestoft/urgent-reform-needed-for-degrading-benefits-system-for-peo-9224457/) *8 November 2021*
 * Teesside Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.gazettelive.co.uk/news/uk-world-news/100-people-died-waiting-dwp-22098357) *8 November 2021*

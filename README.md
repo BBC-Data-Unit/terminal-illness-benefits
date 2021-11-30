@@ -47,6 +47,7 @@ Stories written by partners based on this research included:
 * Bristol Post: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.bristolpost.co.uk/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021*
 * Bury Times: [More than 240 Bury terminal patients hit by 'cruel and arbitrary' benefits rule](https://www.burytimes.co.uk/news/19691925.240-bury-terminal-patients-hit-cruel-arbitrary-benefits-rule/) *8 November 2021*
 * Cambridgeshire Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.cambridge-news.co.uk/news/uk-world-news/100-people-died-waiting-dwp-22098357) *8 November 2021*
+* Cambridgeshire Live: [DWP: All the Universal Credit changes to expect from now until 2026 - including £1,000 increase](https://www.cambridge-news.co.uk/news/uk-world-news/dwp-universal-credit-changes-expect-22305022) *29 November 2021*
 * Cheshire Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.cheshire-live.co.uk/news/uk-world-news/100-people-died-waiting-dwp-22098357) *8 November 2021*
 * Coventry Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.coventrytelegraph.net/news/uk-world-news/100-people-died-waiting-dwp-22098357) *8 November 2021*
 * Devon Live: [100 people have died waiting for DWP to pay benefits after terminal diagnosis](https://www.devonlive.com/news/uk-world-news/100-people-died-waiting-dwp-6174572) *8 November 2021* 

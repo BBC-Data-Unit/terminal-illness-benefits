@@ -4,7 +4,7 @@
 
 In November 2021, the BBC Shared Data Unit [reported](https://www.bbc.co.uk/news/uk-59067101) around 100 people who were denied fast-tracked disability benefits for terminal illness had died challenging the decision since 2018.
 
-Under rules in effect at the time, patients could access benefits more quickly if their clinician says they had six months or less to live.
+Under rules in effect at the time, patients could access benefits more quickly if their clinician said they had six months or less to live.
 
 In July 2021 the government had promised to extend that to 12 months. Critics said it did not go far enough.
 
